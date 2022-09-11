@@ -1,0 +1,5 @@
+- 👋 Hi, I’m @Lalith802
+- 👀 I’m interested in Tech and Evolution 
+- 🌱 I’m currently learning Btech (U.G)
+- 💞️ I’m looking to collaborate on Website Desige and Development
+- 📫 How to reach me Email me lv8501@srmist.edu.in
